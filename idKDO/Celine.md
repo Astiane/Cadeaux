@@ -3,7 +3,7 @@
 ## Sport
 
 - Porte vélo pour voiture (pour 3 vélo)
-
+- jumelle compact de rando
 
 ## Divers
 
@@ -11,6 +11,7 @@
 - Set outils plantes d'appartement (pour l’entretien de mes terrarium)
 - kit bonsai ([exemple](https://www.natureetdecouvertes.com/deco-maison/plantes-interieur/plantes-atypiques/kit-bonsai-a-faire-pousser-50177010))
 - Appareil photo : objectif photo macro pour appareil photo canon
+
 
 ## Bijoux
 
@@ -23,9 +24,8 @@
 ## Vetements
 
 - Bon achat chez armand thiery
-- [Valet de chambre](https://amzn.eu/d/0zpTVn3)
 - sac cabaia crossbody adventurer medium
-- 
+  
 
 ## Sortie
 
@@ -38,6 +38,7 @@
 - Carte du monde en bois avec drapeau – comme ce qu’on avait vu au marché de noel à Lyon
 - Fontaine d'intérieur
 - tableau en plusieurs apnneaux pour le salon - theme Alpes enneigée/lac de montagne
+- tableau imprimer sur alu de tim mannakee (de la dordogne) ou un équivalent des pyrénées (canigou)
 
 ## Bien être
 
@@ -57,6 +58,8 @@
 - roch et mineraux - chris pellant
 - H Y ANNA - serie petit crime et jardins secret
 - Preston &child serie de Pendergast
+- Il n'en restera qu'un - volume 1 Le Solaris: Livre-jeu d'enquête
+- CRIMEDOKU ÉNIGMES CRIMINELLES
 
 ## Film
 
