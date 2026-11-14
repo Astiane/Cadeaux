@@ -3,6 +3,7 @@
 ## Sport
 
 - Porte vélo pour voiture (pour 3 vélo)
+  - jumelle ou monoculaire pour rando
 
 
 ## Divers
@@ -11,6 +12,8 @@
 - Set outils plantes d'appartement (pour l’entretien de mes terrarium)
 - kit bonsai ([exemple](https://www.natureetdecouvertes.com/deco-maison/plantes-interieur/plantes-atypiques/kit-bonsai-a-faire-pousser-50177010))
 - Appareil photo : objectif photo macro pour appareil photo canon
+  - batterie portable pour recharge de telephone
+  - sterilisateur de bocaux avec un fonctionnement au gaz
 
 ## Bijoux
 
@@ -23,10 +26,8 @@
 ## Vetements
 
 - Bon achat chez armand thiery
-- [Valet de chambre](https://amzn.eu/d/0zpTVn3)
 - sac cabaia crossbody adventurer medium
 - 
-
 ## Sortie
 
 - place pour un spectacle d'humoriste ou autre (verino par exemple, shen yun)
@@ -54,7 +55,7 @@
 
 ## Livre
 
-- roch et mineraux - chris pellant
+- chronique d'une psycho - Lyli lou
 - H Y ANNA - serie petit crime et jardins secret
 - Preston &child serie de Pendergast
 
