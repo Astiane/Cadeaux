@@ -7,10 +7,11 @@
 
 ## Divers
 
-- nouveau téléphone samsung
 - Set outils plantes d'appartement (pour l’entretien de mes terrarium)
 - kit bonsai ([exemple](https://www.natureetdecouvertes.com/deco-maison/plantes-interieur/plantes-atypiques/kit-bonsai-a-faire-pousser-50177010))
 - Appareil photo : objectif photo macro pour appareil photo canon
+- classeur pour rangement de puzzle 1500 pièces ou 2000pièces
+- puzzle 1500 pièces
 
 ## Bijoux
 
@@ -37,7 +38,7 @@
 
 - Carte du monde en bois avec drapeau – comme ce qu’on avait vu au marché de noel à Lyon
 - Fontaine d'intérieur
-- tableau en plusieurs apnneaux pour le salon - theme Alpes enneigée/lac de montagne
+- tableau en plusieurs panneaux pour le salon - theme Alpes enneigée/lac de montagne
 
 ## Bien être
 
@@ -54,9 +55,9 @@
 
 ## Livre
 
-- roch et mineraux - chris pellant
 - H Y ANNA - serie petit crime et jardins secret
 - Preston &child serie de Pendergast
+  - Chroniques d’une Psycho de Lily Lou
 
 ## Film
 
