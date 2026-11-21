@@ -7,35 +7,47 @@
 - Le Scrameustache tome 9, tome 12, tome 14, tome 25, tome 26, tome 28, tome 30 et tome 31 - Editions Dupuis (d'occasion seulement)
 - Alpha tome 20, Black holes
 - Le triangle Secret - Rectificando - Tome 4
-- IRS tome 26 l art du profit
-- sillage tome 24 Concessions
-- sillage tome 25 alliances 
+- Sillage tome 25 Alliances
+- Thorgal tome 44 - Yggdrasil
+- Saint Lucky Luke
+- Le scorpion tome 15
+- Les tuniques bleues tome 70 - Les bleus sur la corde raide
+- Les tuniques bleues tome 68 - de l'or pour les bleus
+- Golden City tome 17
+- IRS tome 26 - L(art du profit
+- Les naufragés d'Ythaq tome 10 et au-delà 
 
 ## Livres
 
 - Romans de Robert Galbraith En edition livre de poche pour compléter ma serie:
-* sang d encre
-* blanc mortel
-* la carrière du mal
-* le ver a soie
+  1. sang d'encre
+  2. blanc mortel
+  3. la carrière du mal
+  4. le ver a soie
+- Livre sur le Japon (guide)
 
+## Jeu switch
 
-## Blue Ray
-
--
+- The legend of Zelda: ocarina of time remake
 
 ## Sport
 
 - [Basket Skeetcher noir taille 39](https://www.decathlon.fr/p/baskets-de-marche-sportive-femme-flex-appeal-new-hit-3-0-noir/_/R-p-X8745943?mc=8745943)
-- veste coupe vent pluie de running noir légère (kipsta) 
+- Veste coupe vent pluie de running noir légère (kipsta) chez Décathlon
 
-  
 ## Divers
 
 - Décoration salle de bain: porte-savon, gobelet, etc. style acier
 - [Parapluie pliant - Parapli chez Pylone](https://www.pylones.com/fr/parapluie-original-design/14409-parapluie-parapli-black-palette.html)
-- un peu de maquillage tons discrets
-- parfum one million de Paco rabanne 
-- places d opéra ou de concert
+- Un peu de maquillage tons discrets
+- Places d opéra ou de concert
 - [cabaia: porte-cartes 2.0](https://www.cabaia.fr/collections/porte-cartes-nouvelle-version)
-- cabaia: portefeuille taille médium
+- Cabaia: portefeuille taille médium
+- [Cabaia : valise small 48L](https://www.cabaia.fr/products/valise-souple-cabine-reykjavik-pochette)
+- Maquettes en bois série Harry Potter:
+  - [Château de Poudlard](https://ugearsmodels.com/fr/collections/harry-potter/products/hogwarts-castle)
+  - [Dragon ukrainien à panse de fer](https://ugearsmodels.com/fr/collections/harry-potter/products/ukrainian-ironbelly-dragon)
+  - [Moto volante de Hagrid](https://ugearsmodels.com/fr/collections/harry-potter/products/hagrids-flying-motorbike)
+  - [Quai 9 3/4](https://ugearsmodels.com/fr/collections/harry-potter/products/platform-9-34)
+  - [Poudlard Express](https://ugearsmodels.com/fr/collections/harry-potter/products/hogwarts-express)
+- Statuettes décoration dragon (https://www.legendya.com/figurines-dragons-et-statuettes-dragons-_r_708_va_1.html) ou fées 

@@ -1,4 +1,4 @@
-# Idées Cadeaux Gabriel
+I# Idées Cadeaux Gabriel
 
 <!--- [Voir Amazon](https://www.amazon.fr/hz/wishlist/ls/N2LON7I7DD9B?ref_=wl_share)-->
 
@@ -88,8 +88,13 @@
 ### Jeux Switch 1
 
 - **FANTASY LIFE i : La voleuse de temps**
+- [Star Wars : Heritage Pack](https://amzn.eu/d/0j3dLPPC)
+- Final Fantasy Resonance
 - Triangle strategy
 - Octopath traveler II
+- [FINAL FANTASY I-VI COLLECTION](https://amzn.eu/d/0gUs36aY)
+- Metal Slug Tactics
+- Star Ocean: The Second Story R
 - Tales of Vesperia: Definitive Edition
 - DRAGON QUEST VII Reimagined
 - Dragon Quest XI: Les combattants de la destinée
@@ -106,7 +111,7 @@
 
 - [SteamDeck](https://store.steampowered.com/steamdeck)
 - Switch 2 avec au choix
-  <!-- - Fire Emblem: Fortune's Weave -->
+  - **Fire Emblem: Fortune's Weave**
   - Tales of Arise - Beyond the Dawn Edition
   - Mario Kart World
   - Kirby Air Riders
@@ -128,6 +133,7 @@
 #### Lego
 
 <!-- - [H175](https://www.lego.com/fr-fr/product/airbus-h175-rescue-helicopter-42145) -->
+
 - [Château himeji](https://www.lego.com/fr-fr/product/himeji-castle-21060?ef_id=Cj0KCQjw9O_BBhCUARIsAHQMjS7lm5o-vlorMToJNxaVb6EiV8kllmBacJtOgKmmthCzVFs-uI5LU2waArKGEALw_wcB%3AG%3As&s_kwcid=AL%21933%213%21%21%21%21x%21%21%2119820147256%21&cmp=KAC-INI-GOOGEU-GO-FR_GL-FR-RE-SP-BUY-CREATE-MB_ALWAYS_ON-SHOP-BP-PMAX-ALL-CIDNA00000-PMAX-MEDIUM_PRIORITY&gad_source=1)
 
 <!-- #### Puzzle 3D Mécanique en Bois
@@ -151,13 +157,16 @@
 
 - Watchmen : Les Gardiens (2009)
 - Star Wars intégral (enfin, au moins la première trilogie (4, 5, 6))
+- John Wick intégral
 - Blade Runner (film de 1982)
 - Qui veut la peau de Roger Rabbit (1988)
 - Star Trek : Sans limites (2016)
+- Idiocracy
 
 ### Animation
 
 - [Paprika](https://amzn.eu/d/8ziJrBD)
+- Origin (spirits of the past) (2006)
 
 #### Ghibli
 
@@ -192,6 +201,15 @@
 - [Leatherman Accessoire à mousqueton](https://eu.leatherman.com/fr-fr/products/carabiner-accessory)
 
 ## Maison
+
+### Cuisine
+
+- [Planche à découper en Titane](https://get-katori.com/)
+- Aiguiseur couteaux roulant
+
+### Entretien
+
+- [Aspirateur à cendres Kärcher AD 2](https://amzn.eu/d/0dpfWmGB)
 
 ### Meubles
 
